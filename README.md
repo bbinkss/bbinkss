@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @bbinkss
 - 👀 I’m interested in IT!
-- 🌱 I’m currently learning Comptia a+
+- 🌱 I’m currently studying for the Comptia a+, I am also learning python. 
